@@ -1,3 +1,7 @@
+"***With you there, I feel I shall***
+
+*enjoy humanity's beauty __all the more.__*"
+                   
 ![description](https://files.catbox.moe/ls2ovb.png)
 
  𓏲ּ𝄢 ⠀ **Scott** ⠀ 𓈒 ⠀ Rudy ⠀ ⟢   Kiyo
