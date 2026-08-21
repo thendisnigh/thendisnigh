@@ -1,12 +1,9 @@
-![description](https://media1.tenor.com/m/53Tpfl_Dp9kAAAAC/ash-the-end-is-nigh-the-end-is-nigh.gif)
+![description](https://files.catbox.moe/ls2ovb.png)
 
+ 𓏲ּ𝄢 ⠀ **Scott** ⠀ 𓈒 ⠀ Rudy ⠀ ⟢   Kiyo
 
-⠀ ⠀ ⠀ 𓏲ּ𝄢 ⠀ **Scott** ⠀ 𓈒 ⠀ Rudy ⠀ ⟢   Kiyo
+18yo  ⠀ ♪ ⠀ ⠀ __whisper 2 int , usually offtab__
 
-⠀ ⠀ ⠀ 18yo  ⠀ ♪ ⠀ ⠀ whisper 2 int , usually offtab
+**#1 shinsai fan** . always open 2 int
 
-⠀ ⠀ ***Doubles iwec***  . . .  *Im usually bad at talking but I do try !*
-
-*Feel free to int whenever.*
-
-![description](https://64.media.tumblr.com/6552ecd2515f7113d1bb085e980300e2/cd2ae22934293de2-a1/s100x200/7f388e87fdcbb9415995c29615f38f2fe234f447.gifv) ![desc](https://64.media.tumblr.com/562fcf3ccb3bef9aa68975d5eeb94e69/cd2ae22934293de2-e3/s100x200/4c94a4e0374249055b86eb74cab77e7ea3137dbc.gifv)
+![desc](https://64.media.tumblr.com/171648bac33cb1f351f1e6f879f3cbb1/a80c79902e4eeba0-95/s100x200/65868845e93930d98487092e21528b1b04af8a63.pnj) ![desc](https://64.media.tumblr.com/d6cd31afa648ebed1fbe63c1a99456f6/a80c79902e4eeba0-fd/s100x200/4ed6b0ecc3393a2eff2d45e4e6a96b999328f618.gifv) ![desc](https://64.media.tumblr.com/6ee9abd1df6db6af84601f33c6667335/a80c79902e4eeba0-4c/s100x200/7873515b3685db07c8e1b72054f3759091d27dae.gifv)
