@@ -1,10 +1,6 @@
-"***With you there, I feel I shall***
+![description](https://files.catbox.moe/9s4zyc.png)
 
-*enjoy humanity's beauty __all the more.__*"
-                   
-![description](https://files.catbox.moe/ls2ovb.png)
-
- 𓏲ּ𝄢 ⠀ **Scott** ⠀ 𓈒 ⠀ Rudy ⠀ ⟢   Kiyo
+ 𓏲ּ𝄢 ⠀ **Scott** ⠀ 𓈒 ⠀ Rudy ⠀ ⟢   Steven
 
 18yo  ⠀ ♪ ⠀ ⠀ __whisper 2 int , usually offtab__
 
